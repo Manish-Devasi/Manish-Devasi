@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Manish-Devasi
+- 👀 I’m interested in Software Development and Game Development
+- 🌱 I’m currently learning Electronics and Computer Science 
+- 💞️ I’m looking to collaborate on New Projects
+- 📫 How to reach me gmail:manishdevasi99888@gmail.com
+- 😄 Pronouns: He/him
+- ⚡ Fun fact: ...
